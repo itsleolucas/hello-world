@@ -2,5 +2,5 @@
 
 Hi!
 
-Just checking if my super Jupterian virtual communication works here on Earth too.
+Just checking if it works.
 Hope it does!
